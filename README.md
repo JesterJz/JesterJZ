@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi I'm Jester Jz 👋
 
 <!--
 **JesterJz/JesterJZ** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
